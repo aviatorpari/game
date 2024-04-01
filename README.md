@@ -7,7 +7,7 @@ Are you ready for an adrenaline-fueled gaming experience that could potentially 
 Aviator isn't your typical online game; it's a dynamic gambling entertainment sensation that delivers excitement in just a few seconds. With every round, players have the opportunity to multiply their winnings exponentially. But here's the catch: if luck isn't on your side and you lose, you forfeit your potential earnings. Success in Aviator requires patience, strategy, and a hunger for multiplying your income.
 
 ## How to Get Started with Aviator
-Getting in on the action with Aviator is simple. First, choose a reputable online casino from our selection. Next, complete the quick registration process and make your initial deposit. Once your account is funded, you're ready to dive into the heart-pounding world of [Aviator](https://aviatorgamebet.org/) and start playing for real money.
+Getting in on the action with Aviator is simple. First, choose a reputable online casino from our selection. Next, complete the quick registration process and make your initial deposit. Once your account is funded, you're ready to dive into the heart-pounding world of [Aviator game bet](https://aviatorgamebet.org/) and start playing for real money.
 
 ![Screenshot1](image/aviator1.webp)  
 
@@ -40,7 +40,7 @@ Are you ready to embark on an electrifying gaming journey where the sky's the li
 To play Aviator, simply place your bet and wait for the plane to take off. If it reaches the odds you've chosen, you win!
 
 ### What is Provably FAIR technology?
-Provably FAIR technology ensures fairness in the [Aviator game](https://aviatorparimatch.in/). Each round's outcome is verifiable by players, ensuring transparency and fairness.
+Provably FAIR technology ensures fairness in the [Aviator parigame](https://aviatorparimatch.in/). Each round's outcome is verifiable by players, ensuring transparency and fairness.
 
 ### What payment methods are available?
 Aviator supports various payment methods, including Visa, Mastercard, e-wallets, and cryptocurrencies in some regions.
